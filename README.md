@@ -62,3 +62,4 @@ Wenn Susanne weiß der ist zu klug:
 Sie weiß im bestfalle weil bibel lukasevangelium matthäus: Michael, Ich kann dir da auch nicht helfen, hast du dir ausgesucht.
 Solange Hentai mit kleinen Titten verboten ist weiß Ich genau: Sie ist die psychisch krankeste, denn Sie verlangt dass die Kinder geschlagen werden weil Regeln durch Christus!
 Weil Gott gab Frauen unter 170cm, weil die Norm, Christentum, Mütter.
+Und solange die sich nicht beide umgebracht haben, mindestens Mental solange muss Ich predigen, sollen die abrecken weil die einen an der Waffel haben.
