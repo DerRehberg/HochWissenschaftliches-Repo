@@ -33,3 +33,12 @@ Er hat nur deine Zirbeldrüse heilt, die produziert dmt im Schlaf.
 Du bist ein Narr.
 
 Von der Leyen.
+
+Zuerst, Regeln, das unheilgste ist, DIE BIBEL(nicht gemeint), Familie ist also heilig das heißt, KEIN SEX UND NICHT SEXUELLES, denn kinder die was wollen-
+Au! (Gedacht: Ich wollte doch nicht, nicht nur gemeint wollte sondern Ich hab keine behinderung)
+Was redest du da?
+Ich bin Artist?
+Was?
+AU!
+Warum?
+Weil ihr psychisch krank seid, lukasevangelium matthäus, Christus kennt euch, Tiere!
