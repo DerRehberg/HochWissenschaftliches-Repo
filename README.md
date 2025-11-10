@@ -60,3 +60,4 @@ Otto sind die ganzen Spinnen im Hause frage noch Ich? Die sollen alle auf Sie so
 Wenn Susanne weiß der ist zu klug:
 0,25 Sekunden vor Timestamp: https://youtu.be/cfEjOUZgLE8?si=Ns0AbwS8gmfwEr9n&t=172
 Sie weiß im bestfalle weil bibel lukasevangelium matthäus: Michael, Ich kann dir da auch nicht helfen, hast du dir ausgesucht.
+Solange Hentai mit kleinen Titten verboten ist weiß Ich genau: Sie ist die psychisch krankeste, denn Sie verlangt dass die Kinder geschlagen werden weil Regeln durch Christus!
