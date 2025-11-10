@@ -54,3 +54,4 @@ Real Satiriker weiß bescheid, bin kind, checke mehr als alle eh: Frauen.
 Erstmal mit Oma eig reden, Christus sagt die muss man nicht hassen. 
 Was ist passiert?
 Das ist die Frage an ihn und die Antwort ist, die Pupertät!
+Weil er ein Vollidiot ist, weil er nicht kochen kann und seine Frau ist schiere Scheiße,faktisch!
