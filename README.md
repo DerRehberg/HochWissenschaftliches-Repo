@@ -74,3 +74,4 @@ Falsches Mitleid birgt den Hass ohne Agressionen gegen den biologischen Vater de
 Lass mich raten, weil das/dass gemeint beides tu Ich mir nicht an?
 Gewschister haben am selben Tag Geburtstag wie die beiden jeweils ein, gemeint Elternteil.
 Frauen wissen direkt, Nudes in den dms, wenn kleine Titten, weil der Bildschirm.
+Frei kann Fresse, umgangssprachlich, viel Spaß mit den Nerds, bezug einige, aber Ladys, Titten in Dms.
