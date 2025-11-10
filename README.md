@@ -83,3 +83,4 @@ Weil Ich seine Regeln hab aber Ich bin dreist, nicht gemeint frei sondern angebl
 Man muss sich auch wünschen was man wünscht, denn Die Hölle birgt den Himmel.
 https://youtu.be/L9ONC63uvoM?si=5czzOg5Fw3nJEK2-&t=77
 Gehst auf andere oder schier positiv auf dich selber mitunter gleich auf andere?
+Für alle gegen alle ohne Gewalt weil Regeln. 
