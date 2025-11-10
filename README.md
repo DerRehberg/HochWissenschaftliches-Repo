@@ -30,4 +30,6 @@ I know what I saw.
 
 Er hat nur deine Zirbeldrüse heilt, die produziert dmt im Schlaf.
 
-Du bist foolish.
+Du bist ein Narr.
+
+Von der Leyen.
