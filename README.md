@@ -81,3 +81,4 @@ Nancy weiß, 603 an 10: https://youtu.be/oGiSgPP-8mc?si=hnzQHMcmNtMTS8cM&t=83 - 
 Christus schloss mich frei und dass ist gleich.
 Weil Ich seine Regeln hab aber Ich bin dreist, nicht gemeint frei sondern angeblich provukant, weil zwischen.
 Man muss sich auch wünschen was man wünscht, denn Die Hölle birgt den Himmel.
+https://youtu.be/L9ONC63uvoM?si=5czzOg5Fw3nJEK2-&t=77
