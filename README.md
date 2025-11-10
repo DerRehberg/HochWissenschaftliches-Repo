@@ -18,3 +18,10 @@ Geht um die Musik weil fühlen.
 ![03-12-31-617_512](https://github.com/user-attachments/assets/841dcb5b-c949-4327-89cf-b36567e9ba8c)
 
 Bildschirm is? Eine Ebene.
+
+
+Eltern wenn die die Kinder rauswerfen:
+https://youtu.be/-LTCxG4UMEs?si=vjc_MGzgCTpcrQyo&t=2
+The boy always...
+
+Vielleicht sollten wir ihn anrufen, er ist schon 20 minuten weg.
