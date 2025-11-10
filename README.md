@@ -79,3 +79,4 @@ Is schon alles nachgezeichnet nicht nur, weil Kunstfreiheit, Puzzeln, Kombinatio
 Bin Weltherrscher, aber Harz nicht einfach sondern Termin, heißt? Risiko gemeint? Es läuft alles nach Plan, Ich kann nicht einfach- Ich bin ein teil.
 Nancy weiß, 603 an 10: https://youtu.be/oGiSgPP-8mc?si=hnzQHMcmNtMTS8cM&t=83 - Der Timestamp.
 Christus schloss mich frei und dass ist gleich.
+Weil Ich seine Regeln hab aber Ich bin dreist, nicht gemeint frei sondern angeblich provukant, weil zwischen.
