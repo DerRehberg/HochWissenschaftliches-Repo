@@ -56,3 +56,6 @@ Was ist passiert?
 Das ist die Frage an ihn und die Antwort ist, die Pupertät!
 Weil er ein Vollidiot ist, weil er nicht kochen kann und seine Frau ist schiere Scheiße,faktisch!
 Otto sind die ganzen Spinnen im Hause frage noch Ich? Die sollen alle auf Sie sodass Sie stirbt! *hand heilig hoch*
+
+Wenn Susanne weiß der ist zu klug:
+0,25 Sekunden vor Timestamp: https://youtu.be/cfEjOUZgLE8?si=Ns0AbwS8gmfwEr9n&t=172
