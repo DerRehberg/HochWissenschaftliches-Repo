@@ -86,4 +86,4 @@ Gehst auf andere oder schier positiv auf dich selber mitunter gleich auf andere?
 Für alle gegen alle ohne Gewalt weil Regeln. 
 
 Wenn alle bei IMT fast alle wegen Nancy sagen die gesehns ins urlaub und ich hab mein default mode network aktiviert und hol mich n risc-v weil sie einigung hat:
-https://youtu.be/SdpN0Y3DSAg?si=MgdxZ7Fr6dJnZ2e2&t=17 - Weil Ich dann weiter als die Ämter bin, Redox OS, was besseres zu tun als zu bumsen, kann auch meinen eigenen Pimmel anfassen bezug einzelperson von einzelperson gemeint eins weil Aussagen Christus.
+https://youtu.be/SdpN0Y3DSAg?si=MgdxZ7Fr6dJnZ2e2&t=17 - Weil Ich dann weiter als die Ämter bin, Redox OS, was besseres zu tun als zu bumsen, kann auch meinen eigenen Pimmel anfassen bezug einzelperson von einzelperson gemeint eins weil Aussagen Christus, sind gerade mal mit offenem Word hinterhergekommen, bin million mal weiter potenziell, weil Ich hab was besseres zu tun als-
