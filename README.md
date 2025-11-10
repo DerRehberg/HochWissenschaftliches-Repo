@@ -51,3 +51,6 @@ Ihr könnt mich mal kreuzweise.
 Willst du sagen dass Ich psychisch krank bin?
 Auch OOOMA hat Michael erzogen!
 Real Satiriker weiß bescheid, bin kind, checke mehr als alle eh: Frauen.
+Erstmal mit Oma eig reden, Christus sagt die muss man nicht hassen. 
+Was ist passiert?
+Das ist die Frage an ihn und die Antwort ist, die Pupertät!
