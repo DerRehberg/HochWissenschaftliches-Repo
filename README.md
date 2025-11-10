@@ -70,3 +70,4 @@ Schwul!
 Dein ernst?
 Geht so, eig anime.
 Das Regelwerk! Twitter, für den Frieden! Weil das Regelwerk, weil unter der Erde.
+Falsches Mitleid birgt den Hass ohne Agressionen gegen den biologischen Vater denn er hat die Mutter gewählt die Gewalt und Straftaten predigt, da die Bibel sagt, das Herz muss stark sein.
