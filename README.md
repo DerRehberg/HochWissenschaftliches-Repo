@@ -25,3 +25,9 @@ https://youtu.be/-LTCxG4UMEs?si=vjc_MGzgCTpcrQyo&t=2
 The boy always...
 
 Vielleicht sollten wir ihn anrufen, er ist schon 20 minuten weg.
+
+I know what I saw.
+
+Er hat nur deine Zirbeldrüse heilt, die produziert dmt im Schlaf.
+
+Du bist foolish.
