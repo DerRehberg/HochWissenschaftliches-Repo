@@ -42,3 +42,9 @@ Was?
 AU!
 Warum?
 Weil ihr psychisch krank seid, lukasevangelium matthäus, Christus kennt euch, Tiere!
+Woher willst du die ganze Bibel kennen du kannst nichmal lesen?
+Dämooonengaben!
+Warum?
+Das Potenzial.
+Was soll das heißen?
+Ihr könnt mich mal kreuzweise.
