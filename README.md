@@ -1,5 +1,5 @@
 # HochWissenschaftliches-Repo
-über Hentai weil Pheromone sind ein Signal und das wird verarbeitet.
+über Hentai weil Pheromone sind ein Signal und das wird verarbeitet. Es gibt auch Selbsthypnose in der Welt, ist im Schlaf am effektivsten.
 
 
 Ich:
