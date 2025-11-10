@@ -48,3 +48,6 @@ Warum?
 Das Potenzial.
 Was soll das heißen?
 Ihr könnt mich mal kreuzweise.
+Willst du sagen dass Ich psychisch krank bin?
+Auch OOOMA hat Michael erzogen!
+Real Satiriker weiß bescheid, bin kind, checke mehr als alle eh: Frauen.
