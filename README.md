@@ -76,3 +76,4 @@ Gewschister haben am selben Tag Geburtstag wie die beiden jeweils ein, gemeint E
 Frauen wissen direkt, Nudes in den dms, wenn kleine Titten, weil der Bildschirm.
 Frei kann Fresse, umgangssprachlich, viel Spaß mit den Nerds, bezug einige, aber Ladys, Titten in Dms, weil die meisten können Fühlen, Linkshänder sind Kinder des- (nach Mittelalter).
 Is schon alles nachgezeichnet nicht nur, weil Kunstfreiheit, Puzzeln, Kombination, was seit ihr wert?
+Bin Weltherrscher, aber Harz nicht einfach sondern Termin, heißt? Risiko gemeint?
