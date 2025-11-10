@@ -64,3 +64,8 @@ Solange Hentai mit kleinen Titten verboten ist weiß Ich genau: Sie ist die psyc
 Weil Gott gab Frauen unter 170cm, weil die Norm, Christentum, Mütter.
 Und solange die sich nicht beide umgebracht haben, mindestens Mental solange muss Ich predigen, sollen die abrecken weil die einen an der Waffel haben.
 Esseidenn die hören auf an mich zu denken sogar gemeint wenn Ich bei denen Wohne ohne mir oder meinem Kram was anzutun, weil das ist nicht meins, da liebe deinen Nachbarn, der Staat hat zu sorgen denn Menschen haben Hobbys und Überschuss, denn alles wäre schon automatisiert würde wer nicht Scheiße sein für die Frau.
+
+Wer bist du dass du Gott anzweifelst? 
+Schwul!
+Dein ernst?
+Geht so, eig anime.
