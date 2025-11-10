@@ -69,3 +69,4 @@ Wer bist du dass du Gott anzweifelst?
 Schwul!
 Dein ernst?
 Geht so, eig anime.
+Das Regelwerk! Twitter, für den Frieden! Weil das Regelwerk, weil unter der Erde.
