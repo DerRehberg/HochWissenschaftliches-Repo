@@ -14,3 +14,5 @@ Und Gott sprach: der Anziehung umlenkt zu materie umwandelt da die materielle We
 
 https://youtu.be/qBMX1QH1jEg?si=4fXXgd61isyrSScx
 Geht um die Musik weil fühlen.
+
+![03-12-31-617_512](https://github.com/user-attachments/assets/841dcb5b-c949-4327-89cf-b36567e9ba8c)
